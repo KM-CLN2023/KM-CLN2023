@@ -22,5 +22,5 @@ Coming soon — uploading reproducible workflows and recent pipelines.
 
 ---
 
-📫 How to reach me: [krishanumukherjee@gmail.com](mailto:krishanumukherjee@gmail.com)  
+📫 How to reach me: [maharanakrish@gmail.com](mailto:maharanakrish@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/krishanumukherjee)
